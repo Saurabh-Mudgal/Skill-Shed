@@ -4,3 +4,22 @@ The document pertains to the experimental one month diet as well as work-out rou
 
 ## Goals
 
+## Diet Plan
+
+## Gym plan
+
+## Finances
+
+## Time
+
+## Consequences
+
+### For Me
+
+### For Family
+
+### For Friends
+
+### For New People I meet
+
+## Decision
